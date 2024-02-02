@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @dragana-a
+- 👀 I’m interested in cars and code
+- 🌱 I’m currently learning java and javascript
+- 💞️ I’m looking to collaborate on anything!
+- 📫 How to reach me instagram @vodoniik
+- 😄 Pronouns: she/her
